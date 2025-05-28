@@ -1,1 +1,0 @@
-# buddhi-yoga.github.io
